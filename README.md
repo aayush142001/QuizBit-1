@@ -1,3 +1,0 @@
-
-# ELYTRAHACK'21
-
